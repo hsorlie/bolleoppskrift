@@ -9,6 +9,7 @@ Her kommer en oppskrift på noen herlige boller. Disse kan du servere hvis du f�
 - Melk
 - Smør
 - Sjokolade
+- Sukat. Hvem i alle dager bruker sukat???
 
 ## Slik gjør du
 

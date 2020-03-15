@@ -21,3 +21,4 @@ Her kommer en oppskrift på noen herlige boller. Disse kan du servere hvis du f�
 - Elt masse
 - Trill boller
 - Stek i ovnen på 250 grader i et kvarters tid
+- Ta de ut

@@ -8,8 +8,8 @@ Her kommer en oppskrift på noen herlige boller. Disse kan du servere hvis du f�
 - Gjær
 - Melk
 - Smør
-- Sjokolade
-- Sukat. Hvem i alle dager bruker sukat???
+- Sjokolade! masse masse sjokolade! du skal gjerne har femtito kilo til en kilo bolledeig
+- Sukat. Hvem i alle dager bruker sukat??? bare gamle folk som savner "når de var unge"
 
 ## Slik gjør du
 

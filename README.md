@@ -1,6 +1,6 @@
 # Boller
 
-Her kommer en oppskrift på noen herlige boller. Disse kan du servere hvis du får besøk. De er kjappe å lage, og blir veldig gode.
+Her kommer en oppskrift på noen herlige boller. Disse kan du servere hvis du får besøk. De er kjappe å lage, og blir veldig gode. For eksempel kan vi jo tenke oss at du får besøk. Da er det godt med boller da. Skikkelig godt. Nam nam. Og disse blir virkelig bare helt supre altså.
 
 ## Ingredienser
 
